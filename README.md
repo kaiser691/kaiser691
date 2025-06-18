@@ -1,4 +1,4 @@
-# Hi, I’m kaiser691 👋
+# Hi, I’m Kaiser B. Acosta 👋
 
 🎓 **Student** | 💻 Studying **Web Development**  
 🧩 Interested in **Algorithms**
